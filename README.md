@@ -1,0 +1,2 @@
+# Habibullayev
+amaliyot 
